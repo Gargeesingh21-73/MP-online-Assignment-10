@@ -5,7 +5,7 @@
 **Name:** Gargee Singh
 **Registration Number:** 23BCE11449
 **Application Number:** IN26011964
-**Batch Number:** 2(B)
+**Batch Number:** 1(A)
 
 ---
 
